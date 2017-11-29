@@ -1,4 +1,4 @@
 # Hellomondo
 Introduzione a gitHub
 Ho sonno, ciaone worlddd
-Simone disturba la quieta della classe e scassa il cxxxx
+Daniele viene bannato dal gruppo di facebook perchè è uno stalker
